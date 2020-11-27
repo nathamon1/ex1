@@ -1,2 +1,2 @@
-# ex1-Tippawan
+# ex1-nathamon
 นางสาวณฐมน วิโรจน์
